@@ -35,3 +35,5 @@ Aptin Finance 已确认推出其代币“APN”，并推出积分系统。
 来源
 
 https://airdrops.io/aptin-finance/
+
+原文地址： https://www.cryptosquare.org/bbs/4000
